@@ -1,1 +1,1 @@
-# vsv-kanaka-LMI
+# vsv-kanaka-Auntie-Anne's
